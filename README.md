@@ -8,4 +8,6 @@
 * Email - harpreet.singh.jbd.0001@gmail.com
 
 
-## Day 1 ( 30 August 2025 ) , 
+## Day 1 ( 30 August 2025 ) , Wednesday
+
+j
