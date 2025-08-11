@@ -12,3 +12,6 @@
 
 Guru Nanak Dev Engineering College (GNDEC), Ludhiana started its Induction Programme 2025 for the new B.Tech students. The event was a mix of tradition, motivation, and warm welcomes for the freshers from Mechanical, Civil, Electrical, Electronics & Communication, Robotics & Artificial Intelligence.
 
+The day started with Shabad kirtan at Gurudwara Sahib 
+
+
