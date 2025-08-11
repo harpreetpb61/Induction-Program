@@ -109,7 +109,9 @@ I believe learning about millets is very useful, especially today when healthy e
 The fifth day of the Induction Programme at GNDEC, held on 6th August 2025, focused on helping new students get familiar with the college environment and academic life.
 
 ### **1. Dr. Parminder Singh**
-He gave speech on topic 'Dean-student welfare.' He told all about the hostles, ground, library, labs and computer centres.Also the told about different societies in cl
+He gave speech on topic 'Dean-student welfare.' He told all about the hostles, ground, library, labs and computer centres.Also the told about different societies in college.
+
+### 2. **Mr. Manpreet Singh ( Physical fitness coach )**
 
 
 
