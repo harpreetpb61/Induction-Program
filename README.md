@@ -102,6 +102,8 @@ On Day 4 of the Induction Programme, we had an interesting and informative lectu
 
 I believe learning about millets is very useful, especially today when healthy eating habits are so important. Including millets in our meals not only supports good health but also promotes sustainable farming practices. It was inspiring to see how small changes, like choosing millets over processed grains, can make a big difference in our well-being. This lecture motivated me to be more conscious about my food choices and try cooking millets at home.
 
+#### _The induction day filled us with motivation, blessings, and pride. I am excited to begin my journey at GNDEC and make the most of every opportunity here._
+
 
 
 
