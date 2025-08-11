@@ -57,7 +57,24 @@ On the second day of the induction programme at GNDEC, students continued to get
 The day began with an insightful expert lecture by Dr. Priyadarshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life. 
 
 ### **2. Satya Scholarship**
-After that we were introduced to Satya Scholarship and BUDDY 4 STUDY programme 
+After that we were introduced to Satya Scholarship and BUDDY 4 STUDY programme
+
+## Day 3 ( 04 August 2025 ), Monday 
+
+### **1.Dr. Priyadarshini**
+
+The day began with an insightful expert lecture by Dr. Priyadarshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life.
+
+### **2. Gautam Murria**
+Gautam Murria a mechanical engineer from D4ME, shared his journey in Motorsports, inspiring young minds with passion and grit. The told all about the racing cars that hoelw these are made under specific conditions with maximum efficiency.🏎️🔥
+
+### **3. Causmic Club**
+
+The Causmic Club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation.They encouraged students to join causmic club.The explained that how the club in managed by the students only.🚀✨
+
+### **4. Peer - 2 - Peer Lecture**
+Meanwhile, Peer-to-Peer sessions and interactive classes by senior students and faculty ran in parallel, making learning collaborative and engaging.The senior students guided us.The taught us the basic of c++. This helped us alot.🤝📘
+
 
 
 
