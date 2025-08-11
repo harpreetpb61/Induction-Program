@@ -93,11 +93,14 @@ Our teacher told about the syllabus of physics and all about the marks pattern.
 
 #### _The induction day filled us with motivation, blessings, and pride. I am excited to begin my journey at GNDEC and make the most of every opportunity here_
 
-## **Day 4 ( 05 August 2025 ), Tuesday 
+## **Day 4 ( 05 August 2025 ), Tuesday** 
 
 The fourth day of the Induction Programme at GNDEC, held on 4th August 2025, focused on helping new students get familiar with the college environment and academic life.
 
-### **1. Shaffy Makkar
+### **1. Shaffy Makkar**
+On Day 4 of the Induction Programme, we had an interesting and informative lecture by Shaffy Makkar, who talked about millets — their importance, benefits, and how to cook them. He explained that millets are nutritious, gluten-free grains that are great for health and can help combat lifestyle diseases. Shaffy Makkar also shared simple and practical cooking methods, making it easy for us to include millets in our daily diet.
+
+I believe learning about millets is very useful, especially today when healthy eating habits are so important. Including millets in our meals not only supports good health but also promotes sustainable farming practices. It was inspiring to see how small changes, like choosing millets over processed grains, can make a big difference in our well-being. This lecture motivated me to be more conscious about my food choices and try cooking millets at home.
 
 
 
