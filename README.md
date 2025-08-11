@@ -53,6 +53,17 @@ After that in the evening, the all students were taken to their departments. We 
 
 On the second day of the induction programme at GNDEC, students continued to get familiar with the college environment and academic culture. 
 
+### **1. Dr. Priyadarshini**
+The day began with an insightful expert lecture by Dr. Priyadarshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life. 
+
+### **2. Satya Scholarship**
+After that we were introduced to Satya Scholarship and BUDDY 4 STUDY programme 
+
+
+
+
+
+
 
 
 
