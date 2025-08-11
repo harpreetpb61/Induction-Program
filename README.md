@@ -87,6 +87,9 @@ The Causmic Club team also showcased their vibrant initiatives, giving freshers 
 ### **4. Peer - 2 - Peer Lecture**
 Meanwhile, Peer-to-Peer sessions and interactive classes by senior students and faculty ran in parallel, making learning collaborative and engaging.The senior students guided us.The taught us the basic of c++. This helped us alot.🤝📘
 
+### **5. Physics Lecture**
+Our teacher told about the syllabus of physics and all about the marks pattern.
+
 
 #### _The induction day filled us with motivation, blessings, and pride. I am excited to begin my journey at GNDEC and make the most of every opportunity here_
 
