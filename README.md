@@ -95,6 +95,10 @@ Our teacher told about the syllabus of physics and all about the marks pattern.
 
 ## **Day 4 ( 05 August 2025 ), Tuesday 
 
+The fourth day of the Induction Programme at GNDEC, held on 4th August 2025, focused on helping new students get familiar with the college environment and academic life.
+
+### **1. Shaffy Makkar
+
 
 
 
