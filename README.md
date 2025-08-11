@@ -29,7 +29,10 @@ He encouraged us to always aim to be suputtar in life through discipline, honest
 ### 2. Dr. Harpreet Kaur Grewal (HoD Applied science)
 She welcomed all of us warmly and explained how important it is to build a strong academic base in our college years. She also encouraged us to make the most of the different opportunities GNDEC offers.
 
-She talked about the structural freedom we will get here – meaning we have the chance to explore different activities, ideas, and learning styles instead of only sticking to the classroom routine. She said it’s our responsibility to use this freedom in a positive way to grow both academically and personally.
+She talked about the structural freedom we will get here – meaning we have the chance to explore different activities, ideas, and learning styles instead of only sticking to the classroom routine. She said it’s our responsibility to use this freedom in a positive way to grow both academically and personally
+
+### 3. Dr. Sehijpal Singh (Principal)
+After that our Principal Dr. Sehijpal Singh addressed us. He congratulated us for getting admission at GNDEC (India’s top engineering colleges) and shared that this is a special year – the 70th year of GNDEC since it was founded in 1956. He talked about the strengths of the college – quality education, research work, industry connections, and focus on overall personality development. He reminded us that college life is not just about studies, but also about learning discipline, teamwork, and life skills.
 
 
 
