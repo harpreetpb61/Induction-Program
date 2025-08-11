@@ -104,6 +104,9 @@ I believe learning about millets is very useful, especially today when healthy e
 
 #### _The induction day filled us with motivation, blessings, and pride. I am excited to begin my journey at GNDEC and make the most of every opportunity here._
 
+## **Day 5 ( 06 August 2025 ), Wednesday**
+
+
 
 
 
