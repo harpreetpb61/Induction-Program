@@ -51,7 +51,7 @@ After that in the evening, the all students were taken to their departments. We 
 
 ## **Day 2 ( 01 August 2025 ), Friday**
 
-
+On the second day of the induction programme at GNDEC, students continued to get familiar with the college environment and academic culture. 
 
 
 
