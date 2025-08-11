@@ -49,6 +49,12 @@ After that in the evening, the all students were taken to their departments. We 
 #### ***The induction day filled us with motivation, blessings, and pride. I am excited to begin my journey at GNDEC and make the most of every opportunity here***
 
 
+## **Day 2 ( 01 August 2025 ), Friday**
+
+
+
+
+
 
 
 
