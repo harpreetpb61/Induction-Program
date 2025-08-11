@@ -59,11 +59,21 @@ The day began with an insightful expert lecture by Dr. Priyadarshini on Universa
 ### **2. Satya Scholarship**
 After that we were introduced to Satya Scholarship and BUDDY 4 STUDY programme.
 
+### **3. Dr. Arvind Dhingra**
+The chairman of technical activity committee ( Dr. Arvind Dhingra ) told about tge greatest achievements of 20th century.
+Also he aware us about different societies which of them are:
+
+* SCIE ( Student's chapter institution of engineers )
+* ISTE ( Indian society for technical education )
+* PEA
+* FM radio
+* Cultural committee 
+
 #### _The induction day filled us with motivation, blessings, and pride. I am excited to begin my journey at GNDEC and make the most of every opportunity here_
 
 ## Day 3 ( 04 August 2025 ), Monday 
 
-### **1.Dr. Priyadarshini**
+### **1. Dr. Priyadarshini**
 
 The day began with an insightful expert lecture by Dr. Priyadarshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life.
 
