@@ -34,6 +34,15 @@ She talked about the structural freedom we will get here – meaning we have the
 ### 3. **Dr. Sehijpal Singh (Principal)**
 After that our Principal Dr. Sehijpal Singh addressed us. He congratulated us for getting admission at GNDEC (India’s top engineering colleges) and shared that this is a special year – the 70th year of GNDEC since it was founded in 1956. He talked about the strengths of the college – quality education, research work, industry connections, and focus on overall personality development. He reminded us that college life is not just about studies, but also about learning discipline, teamwork, and life skills.
 
+### **4.The chief guest (Sardar Maheshinder Singh Grewal)**
+Then,  Sardar Maheshinder Singh Grewal (Senior Trustee of Nankana Sahib Education Trust and former Cabinet Minister of Punjab), addressed us. He shared his own life story and how dedication and discipline shaped his journey. He told that he was not able to speak english then his father guided him and told him to read newspaper daily. 
+
+
+He also spoke about the history of GNDEC – how it was established in 1956 under the Nankana Sahib Education Trust with the aim of providing quality technical education, especially for rural students.
+
+
+He motivated us to study sincerely, respect values, and always contribute to society in a positive way. His words were full of inspiration and made us feel proud to be part of an institution with such a strong vision and legacy.
+
 
 
 
