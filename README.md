@@ -93,6 +93,8 @@ Our teacher told about the syllabus of physics and all about the marks pattern.
 
 #### _The induction day filled us with motivation, blessings, and pride. I am excited to begin my journey at GNDEC and make the most of every opportunity here_
 
+## **Day 4 ( 05 August 2025 ), Tuesday 
+
 
 
 
