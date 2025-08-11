@@ -57,7 +57,9 @@ On the second day of the induction programme at GNDEC, students continued to get
 The day began with an insightful expert lecture by Dr. Priyadarshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life. 
 
 ### **2. Satya Scholarship**
-After that we were introduced to Satya Scholarship and BUDDY 4 STUDY programme
+After that we were introduced to Satya Scholarship and BUDDY 4 STUDY programme.
+
+#### _The induction day filled us with motivation, blessings, and pride. I am excited to begin my journey at GNDEC and make the most of every opportunity here_
 
 ## Day 3 ( 04 August 2025 ), Monday 
 
@@ -74,6 +76,9 @@ The Causmic Club team also showcased their vibrant initiatives, giving freshers 
 
 ### **4. Peer - 2 - Peer Lecture**
 Meanwhile, Peer-to-Peer sessions and interactive classes by senior students and faculty ran in parallel, making learning collaborative and engaging.The senior students guided us.The taught us the basic of c++. This helped us alot.🤝📘
+
+
+#### _The induction day filled us with motivation, blessings, and pride. I am excited to begin my journey at GNDEC and make the most of every opportunity here_
 
 
 
