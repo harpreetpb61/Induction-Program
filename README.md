@@ -43,7 +43,12 @@ He also spoke about the history of GNDEC – how it was established in 1956 unde
 
 He motivated us to study sincerely, respect values, and always contribute to society in a positive way. His words were full of inspiration and made us feel proud to be part of an institution with such a strong vision and legacy.
 
+### **5. Evening Session** 
+After that in the evening, the all students were taken to their departments. We saw different labs and classes of our department.
+
 #### ***The induction day filled us with motivation, blessings, and pride. I am excited to begin my journey at GNDEC and make the most of every opportunity here***
+
+
 
 
 
