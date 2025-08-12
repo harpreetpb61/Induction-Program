@@ -2,7 +2,7 @@
 ## **Student Details**
 * Name - Harpreet Singh
 * Father's Name - Dawinder Singh
-* Branch - Civil Engineering
+* Branch - Electrical Engineering
 * Registration no. - 25104336
 * Mobile no. - 7589355300
 * Email - harpreet.singh.jbd.0001@gmail.com
@@ -112,6 +112,7 @@ The fifth day of the Induction Programme at GNDEC, held on 6th August 2025, focu
 He gave speech on topic 'Dean-student welfare.' He told all about the hostles, ground, library, labs and computer centres.Also the told about different societies in college.
 
 ### 2. **Mr. Manpreet Singh ( Physical fitness coach )**
+
 
 
 
