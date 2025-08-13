@@ -114,8 +114,9 @@ He gave speech on topic 'Dean-student welfare.' He told all about the hostles, g
 ### 2. **Mr. Manpreet Singh ( Physical fitness coach )**
 We also got a session from the Physical Fitness Coach, Mr. Manpreet Singh. He shared his journey of how he started bodybuilding and the hard work it takes to stay fit. He advised us to stay away from drugs and also warned about the harmful effects of steroids. He encouraged us to choose natural ways to build strength and guided us on different exercises for maintaining good health.
 
-### 3. Paramjit Singh Cheema
-
+### **3. Paramjit Singh Cheema (Brigadier)**
+Mr. P.S Cheema motivates us
+ 
 
 
 
