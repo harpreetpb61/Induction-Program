@@ -116,6 +116,10 @@ We also got a session from the Physical Fitness Coach, Mr. Manpreet Singh. He sh
 
 ### **3. Paramjit Singh Cheema (Brigadier)**
 Brigadier P.S. Cheema also addressed us. He motivated and encouraged all the students, emphasizing the importance of fitness, discipline, and a strong mindset for success.
+
+## **Day 6 ( 07 August 2025 ), Thursday**
+
+on day 6 there were lectures of physics and maths. In both the lectures the teachers told us the syllabus and all the basic topics.
  
 
 
