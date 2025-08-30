@@ -7,6 +7,8 @@
 * Mobile no. - 7589355300
 * Email - harpreet.singh.jbd.0001@gmail.com
 
+  ![Image](https://github.com/user-attachments/assets/398f0163-c70d-488c-840b-83527d876a04)
+
 
 ## **Day 1 ( 30 August 2025 ) , Wednesday**
 
