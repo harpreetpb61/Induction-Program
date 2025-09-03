@@ -181,7 +181,7 @@ Dr. Jaswinder Singh delivered a motivational session rooted in science and self-
 -  Promoted analytical thinking as a tool for both academic success and personal decision-making
 
 
-### ***3.  Tech Talk: Google Gemini & AI Applications**
+### **3.  Tech Talk: Google Gemini & AI Applications**
 
 In a dynamic and interactive session, students were introduced to Google Gemini, a cutting-edge AI platform that’s reshaping how we interact with technology. The session offered a hands-on look at Gemini’s latest features, intuitive usability, and its growing influence across multiple industries.
 Participants learned how Gemini integrates natural language processing, image recognition, and multimodal capabilities to deliver smarter, more personalized experiences. The speaker demonstrated how Gemini can assist in real-time decision-making, automate complex tasks, and enhance productivity—making it a powerful tool not just for tech professionals, but for students, educators, and creatives alike.
