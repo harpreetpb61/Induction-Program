@@ -80,14 +80,14 @@ Also he aware us about different societies which of them are:
 The day began with an insightful expert lecture by Dr. Priyadarshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life.
 
 ### **2. Gautam Murria**
-Gautam Murria a mechanical engineer from D4ME, shared his journey in Motorsports, inspiring young minds with passion and grit. The told all about the racing cars that hoelw these are made under specific conditions with maximum efficiency.🏎️🔥
+Gautam Murria a mechanical engineer from D4ME, shared his journey in Motorsports, inspiring young minds with passion and grit. The told all about the racing cars that hoelw these are made under specific conditions with maximum efficiency.🏎
 
 ### **3. Causmic Club**
 
-The Causmic Club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation.They encouraged students to join causmic club.The explained that how the club in managed by the students only.🚀✨
+The Causmic Club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation.They encouraged students to join causmic club.The explained that how the club in managed by the students only.
 
 ### **4. Peer - 2 - Peer Lecture**
-Meanwhile, Peer-to-Peer sessions and interactive classes by senior students and faculty ran in parallel, making learning collaborative and engaging.The senior students guided us.The taught us the basic of c++. This helped us alot.🤝📘
+Meanwhile, Peer-to-Peer sessions and interactive classes by senior students and faculty ran in parallel, making learning collaborative and engaging.The senior students guided us.The taught us the basic of c++. This helped us alot.
 
 ### **5. Physics Lecture**
 Our teacher told about the syllabus of physics and all about the marks pattern.
@@ -123,10 +123,122 @@ Brigadier P.S. Cheema also addressed us. He motivated and encouraged all the stu
 
 on day 6 there were lectures of physics and maths. In both the lectures the teachers told us the syllabus and all the basic topics.
 
+## **Day 7 ( 30 August 2025 ) , Saturday**
 
-# ***CONCLUSION***
+ Event Highlights: A Day of Insight, Innovation & Inspiration
+The day unfolded with a series of enriching sessions that blended science, nutrition, technology, and creativity—each speaker bringing their unique expertise to the forefront.
 
-The GNDEC induction program offered a well-rounded mix of technical learning, moral values, and personal growth. It laid a strong foundation for our academic journey and prepared us with the skills and mindset needed to thrive both in college and in life beyond. Looking back, I truly appreciate the chance to learn, evolve, and become part of the dynamic GNDEC community. This induction has paved the way for a meaningful and rewarding college life—one I’m ready to embrace with enthusiasm.
+### **1.  Dr. Arshpreet Singh – Expert Talk on Food & Nutrition**
+***Assistant Professor, Department of Food Science, PAU Ludhiana***
+
+Dr. Arshpreet Singh captivated the audience with a thought-provoking lecture on the science of food and its impact on health. Drawing from his extensive research published in national journals, he emphasized
+
+
+ Scientific Insights & Myth-Busting
+-  Debunking food myths with scientific clarity—like how wheat chapatis can benefit diabetics
+-  Maida vs Atta: Whole wheat flour (atta) is nutritionally superior, and mixed grain rotis offer higher protein content
+-  Sugar vs Jaggery: Jaggery provides a slower, more controlled energy release compared to refined sugar
+-  Carbonated drinks: Their composition and healthier alternatives like lemonade, soda, or RoohAfza
+
+ Nutrition & Well-Being
+-  Milk as a complete food: Rich in essential nutrients and ideal for daily consumption
+-  Hydration matters: Certain foods and lifestyle habits require increased water intake
+-  Balanced diet: Essential for physical and mental wellness
+-  Junk food: Should be treated as an occasional snack, not a regular meal
+
+ Education & Values
+-  Four-year degree: Not just academic—it builds foundational ethics and life values
+-  “Let food be thy medicine, not medicine thy food”: A guiding principle for healthy living
+
+ Interactive Q&A Highlights
+-  Tea vs Coffee: Compared caffeine content and discussed potential health effects
+-  Veganism: Explored its affordability and practicality in everyday life
+-  Dairy cheese vs Tofu: Nutritional differences and suitability for different diets
+
+
+### **2. Dr. Jaswinder Singh – Science, Focus & Self-Mastery**
+
+Former Assistant State Project Director (Science), Punjab
+Recipient of National Science Promotion Award, Shiksha Rattan & State Honors
+
+Dr. Jaswinder Singh delivered a motivational session rooted in science and self-development. His key messages included:
+
+ Mindset & Motivation
+-  “Focused listening leads to competence, which builds knowledge and ultimately self-confidence.”
+-  Illustrated the power of consistency through the metaphor of a bowl—small efforts, repeated daily, create lasting impact
+-  Shared a mental trick involving the number 9, connecting it to spiritual and cognitive significance
+-  Demonstrated a rapid method for adding 10 numbers, showing how simple techniques can sharpen mental agility
+
+ Scientific Curiosity in Action
+-  Emphasized that the world operates on two fundamental forces: light and sound, and understanding them unlocks deeper knowledge
+-  Conducted engaging physics experiments, including:
+- Detecting electric charge using a gold leaf electroscope
+- Demonstrating current flow through a hands-on electricity experiment
+-  Sparked curiosity with fun facts like counting human bones, making science relatable and interactive
+
+ Thinking with Precision
+-  Encouraged students to answer questions thoughtfully, emphasizing clarity and accuracy over speed
+-  Promoted analytical thinking as a tool for both academic success and personal decision-making
+
+
+### ***3.  Tech Talk: Google Gemini & AI Applications**
+
+In a dynamic and interactive session, students were introduced to Google Gemini, a cutting-edge AI platform that’s reshaping how we interact with technology. The session offered a hands-on look at Gemini’s latest features, intuitive usability, and its growing influence across multiple industries.
+Participants learned how Gemini integrates natural language processing, image recognition, and multimodal capabilities to deliver smarter, more personalized experiences. The speaker demonstrated how Gemini can assist in real-time decision-making, automate complex tasks, and enhance productivity—making it a powerful tool not just for tech professionals, but for students, educators, and creatives alike.
+The session also explored the transformative role of AI in sectors such as:
+-  Healthcare: From diagnostic support to personalized treatment plans
+-  Education: AI-powered tutoring, content generation, and adaptive learning platforms
+-  Entertainment: Scriptwriting, animation, and immersive storytelling through generative tools
+-  Business & Marketing: Data analysis, customer engagement, and predictive modeling
+
+### **4. Ms. Riya Arora – VFX & Creative Careers**
+***MAAC Ludhiana***
+
+Ms. Riya Arora delivered an eye-opening session that shattered the common misconception that VFX is confined to the world of movies. With passion and clarity, she unveiled the expansive universe of 3D design, animation, and digital media, showing students that creativity and technology go hand in hand in shaping the future.
+
+   Expanding Horizons
+- Highlighted real-world applications of VFX in industries like advertising, architecture, gaming, education, and virtual reality
+- Introduced students to emerging job roles in the creative tech space—such as motion graphic artists, environment designers, and AR/VR specialists
+- Emphasized the growing demand for skilled professionals in digital content creation across global platforms
+
+ Personal Journey & Inspiration
+-  Shared her own story of choosing VFX after Class 10, encouraging students to explore unconventional career paths
+-  Spoke candidly about challenges and breakthroughs, making her journey relatable and motivating
+-  Urged students to follow their interests and stay curious about evolving fields beyond traditional choices
+
+ Interactive Engagement
+-  Conducted a musical activity that brought students together in song and spirit, creating a lively and inclusive atmosphere
+-  Fostered a sense of community, creativity, and confidence among participants
+
+Ms. Arora’s session was more than a career talk—it was a celebration of imagination, innovation, and individuality. Students left with a renewed sense of possibility and a deeper appreciation for the creative technologies shaping our world.
+
+
+### **5.  Club Interactions – Empowering Students Beyond the Classroom**
+
+The day concluded with vibrant presentations from student-led clubs that showcased how extracurricular engagement can shape confident, well-rounded individuals. Clubs like Mathemagian, TCS Chemovate, and the English Club brought their missions to life, inviting students to be part of communities that foster growth, creativity, and collaboration.
+
+ What These Clubs Offer
+-  Personality Development: Activities designed to build self-awareness, confidence, and emotional intelligence
+-  Communication Skills: Workshops, debates, and events that refine public speaking and interpersonal abilities
+-  Collaboration & Leadership: Opportunities to lead projects, work in teams, and take initiative in real-world scenarios
+
+# ***Conclusion***
+
+The event was a dynamic tapestry of learning, inspiration, and meaningful interaction. From decoding the science behind nutrition with Dr. Arshpreet Singh to exploring the principles of physics and personal growth with Dr. Jaswinder Singh, students were immersed in knowledge that was both practical and thought-provoking.
+The introduction to Google Gemini opened doors to the future of artificial intelligence, sparking curiosity about how technology is reshaping industries like healthcare, education, and entertainment. Ms. Riya Arora’s engaging session on VFX and digital media broke conventional boundaries, offering students a fresh perspective on creative careers and the power of storytelling through technology.
+The day was further enriched by vibrant club interactions, where student-led groups like Mathemagian, TCS Chemovate, and the English Club showcased how extracurricular involvement can build confidence, communication skills, and leadership potential.
+Each session added a unique layer to the experience—whether it was scientific experimentation, career exploration, or community building. Students left not only with broadened horizons but with a renewed sense of purpose, empowered to think critically, explore boldly, and engage deeply with the world around them.
+
+
+
+
+
+
+
+
+
+
+
  
 
 
